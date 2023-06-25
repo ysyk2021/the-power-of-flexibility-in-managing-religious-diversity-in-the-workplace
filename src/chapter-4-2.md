@@ -1,5 +1,4 @@
-Chapter 4: Creating a Flexible Work Environment: Providing Accommodations for Religious Practices
-=================================================================================================
+# Providing Accommodations for Religious Practices
 
 In this chapter, we will explore strategies for creating a flexible work environment that provides accommodations for religious practices. By being proactive and responsive to the needs of employees with diverse religious beliefs, employers can improve employee morale and retention, and foster a more positive work environment overall.
 

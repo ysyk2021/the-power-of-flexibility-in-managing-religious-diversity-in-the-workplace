@@ -27,5 +27,5 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 17. Workplace ethics
 18. Employee retention
 19. Workplace communication
-20. Organizational behavior.
+20. Organizational behavior
 

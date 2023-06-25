@@ -17,4 +17,4 @@
 17. Workplace ethics
 18. Employee retention
 19. Workplace communication
-20. Organizational behavior.
+20. Organizational behavior

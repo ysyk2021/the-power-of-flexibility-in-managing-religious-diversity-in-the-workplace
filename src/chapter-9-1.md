@@ -1,5 +1,4 @@
-Chapter 9: Conclusion: Recap of Key Points
-==========================================
+# Recap of Key Points
 
 In this book, we have explored the power of flexibility in managing religious diversity in the workplace. Here is a recap of the key points discussed:
 

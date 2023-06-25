@@ -1,5 +1,4 @@
-Chapter 2: Understanding Religious Diversity in the Workplace: Common Myths about Religious Diversity
-=====================================================================================================
+# Common Myths about Religious Diversity
 
 In this chapter, we will explore common myths about religious diversity in the workplace. Religious diversity refers to the presence of employees with different religious beliefs and practices in the workplace.
 

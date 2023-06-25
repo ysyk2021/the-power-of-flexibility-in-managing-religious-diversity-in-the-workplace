@@ -1,5 +1,4 @@
-Chapter 8: Integrating Flexibility with Organizational Culture: Developing an Agile Mindset as a Leader
-=======================================================================================================
+# Developing an Agile Mindset as a Leader
 
 In this chapter, we will explore the importance of developing an agile mindset as a leader to effectively manage religious diversity in the workplace.
 

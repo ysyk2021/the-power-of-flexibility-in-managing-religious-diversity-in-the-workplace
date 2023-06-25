@@ -1,5 +1,4 @@
-Chapter 4: Creating a Flexible Work Environment: Establishing Inclusive Policies and Practices
-==============================================================================================
+# Establishing Inclusive Policies and Practices
 
 In this chapter, we will explore strategies for creating a flexible work environment that establishes inclusive policies and practices. By developing policies and practices that promote inclusion and respect for all employees, employers can create a positive and supportive work environment for employees with diverse religious beliefs.
 

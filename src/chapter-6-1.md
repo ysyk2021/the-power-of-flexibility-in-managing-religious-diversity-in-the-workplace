@@ -1,5 +1,4 @@
-Chapter 6: Measuring Success in Managing Religious Diversity: Key Performance Indicators (KPIs) for Measuring Success
-=====================================================================================================================
+# Key Performance Indicators (KPIs) for Measuring Success
 
 In this chapter, we will explore the key performance indicators (KPIs) that can be used to measure success in managing religious diversity in the workplace. KPIs are measurable values that demonstrate how effectively an organization is achieving its objectives.
 

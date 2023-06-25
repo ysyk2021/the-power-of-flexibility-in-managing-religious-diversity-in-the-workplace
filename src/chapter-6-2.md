@@ -1,5 +1,4 @@
-Chapter 6: Measuring Success in Managing Religious Diversity: Qualitative and Quantitative Methods for Evaluation
-=================================================================================================================
+# Qualitative and Quantitative Methods for Evaluation
 
 In this chapter, we will explore the qualitative and quantitative methods that can be used to evaluate the success of managing religious diversity in the workplace.
 

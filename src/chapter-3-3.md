@@ -1,5 +1,4 @@
-Chapter 3: Legal Considerations for Managing Religious Diversity: Avoiding Discrimination and Harassment
-========================================================================================================
+# Avoiding Discrimination and Harassment
 
 In this chapter, we will explore legal considerations for managing religious diversity in the workplace. Employers have a legal obligation to prevent discrimination and harassment on the basis of religion, and failure to do so can result in legal liability.
 

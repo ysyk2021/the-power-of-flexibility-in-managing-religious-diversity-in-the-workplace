@@ -1,5 +1,4 @@
-Chapter 3: Legal Considerations for Managing Religious Diversity: Navigating Accommodation Requests
-===================================================================================================
+# Navigating Accommodation Requests
 
 In this chapter, we will explore legal considerations for managing religious diversity in the workplace. Employers have a legal obligation to provide reasonable accommodations for religious practices and beliefs, and failure to do so can result in legal liability.
 
