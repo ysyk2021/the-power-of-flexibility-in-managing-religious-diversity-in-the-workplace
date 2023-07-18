@@ -8,5 +8,4 @@ This book explores the benefits of fostering religious diversity in the workplac
 
 Whether you're a manager, HR professional, or business leader, The Power of Flexibility in Managing Religious Diversity in the Workplace provides valuable insights and strategies for creating a more inclusive and productive workplace. By embracing religious diversity and promoting flexibility and understanding, organizations can create a culture that celebrates differences and promotes mutual respect among all employees.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
