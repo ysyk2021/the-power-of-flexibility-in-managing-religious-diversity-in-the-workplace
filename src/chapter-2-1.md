@@ -1,4 +1,4 @@
-Chapter 2: Definition of Religious Diversity
+Definition of Religious Diversity
 ============================================
 
 Religious diversity refers to the presence of a variety of religious beliefs, traditions, and practices within a specific workplace or society. It encompasses the coexistence of different religions, denominations, sects, and belief systems among individuals and groups.

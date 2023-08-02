@@ -1,4 +1,4 @@
-Chapter 1: Overview of the Book
+Overview of the Book
 ===============================
 
 Welcome to "The Power of Flexibility in Managing Religious Diversity in the Workplace." This book explores the significance of embracing religious diversity and the benefits it can bring to organizations. In this chapter, we will provide an overview of the book and its key themes.

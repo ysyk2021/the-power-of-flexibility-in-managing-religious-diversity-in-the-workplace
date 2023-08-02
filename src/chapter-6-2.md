@@ -1,4 +1,4 @@
-Chapter 4: Qualitative and Quantitative Methods for Evaluation
+Qualitative and Quantitative Methods for Evaluation
 ==============================================================
 
 Evaluating the effectiveness of strategies used to manage religious diversity in the workplace is crucial for organizations seeking to create inclusive environments. To conduct a comprehensive evaluation, a combination of qualitative and quantitative methods can be employed. This chapter explores the use of qualitative and quantitative methods for evaluating the power of flexibility in managing religious diversity in the workplace.

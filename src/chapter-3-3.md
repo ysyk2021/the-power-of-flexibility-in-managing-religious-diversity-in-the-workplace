@@ -1,4 +1,4 @@
-Chapter 10: Avoiding Discrimination and Harassment
+Avoiding Discrimination and Harassment
 ==================================================
 
 In this chapter, we will discuss the importance of avoiding discrimination and harassment when managing religious diversity in the workplace. Creating a safe and inclusive environment requires proactive measures to prevent discriminatory practices and behaviors.

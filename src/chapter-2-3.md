@@ -1,4 +1,4 @@
-Chapter 5: Common Myths About Religious Diversity
+Common Myths About Religious Diversity
 =================================================
 
 In this chapter, we will explore and debunk some common myths surrounding religious diversity in the workplace. These myths often stem from misunderstandings or lack of knowledge about different faith traditions. By addressing these misconceptions, we can promote a more inclusive and harmonious work environment.

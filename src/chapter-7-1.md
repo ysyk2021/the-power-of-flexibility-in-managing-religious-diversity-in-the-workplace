@@ -1,4 +1,4 @@
-Chapter 7: Real-Life Examples of Companies Successfully Managing Religious Diversity in the Workplace
+Real-Life Examples of Companies Successfully Managing Religious Diversity in the Workplace
 =====================================================================================================
 
 In this chapter, we will explore real-life examples of companies that have effectively managed religious diversity in their workplaces. These companies have implemented strategies, policies, and practices that promote inclusivity, respect, and accommodation for employees of various religious backgrounds.
