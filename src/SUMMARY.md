@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of Flexibility in Managing Religious Diversity](chapter-1-1.md)
-  - [Overview of the Book](chapter-1-2.md)
 - [Chapter 2: Understanding Religious Diversity in the Workplace](chapter-2.md)
   - [Definition of Religious Diversity](chapter-2-1.md)
   - [Benefits of Religious Diversity](chapter-2-2.md)
