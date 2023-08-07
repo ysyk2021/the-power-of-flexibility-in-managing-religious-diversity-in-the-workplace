@@ -1,4 +1,4 @@
-Chapter: Fostering a Culture of Inclusion and Respect
+Fostering a Culture of Inclusion and Respect
 =====================================================
 
 In today's diverse work environments, it is essential for organizations to foster a culture of inclusion and respect towards different religious beliefs. This chapter explores strategies and best practices for creating an inclusive workplace that embraces religious diversity while promoting harmony and understanding.
