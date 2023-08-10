@@ -21,7 +21,6 @@
   - [Key Performance Indicators (KPIs) for Measuring Success](chapter-6-1.md)
   - [Qualitative and Quantitative Methods for Evaluation](chapter-6-2.md)
 - [Chapter 7: Case Studies of Successful Management of Religious Diversity](chapter-7.md)
-  - [Real-life Examples of Companies that have Successfully Managed Religious Diversity in the Workplace](chapter-7-1.md)
 - [Chapter 8: Integrating Flexibility with Organizational Culture](chapter-8.md)
   - [Fostering a Culture of Inclusion and Respect](chapter-8-1.md)
   - [Incorporating Religious Diversity into Business Goals](chapter-8-2.md)
