@@ -1,4 +1,3 @@
-# Understanding Relevant Laws and Regulations
 
 In this chapter, we will explore legal considerations for managing religious diversity in the workplace. Employers have a legal obligation to prevent discrimination and harassment on the basis of religion, and to provide reasonable accommodations for employees' religious practices and beliefs.
 

@@ -1,5 +1,3 @@
-Providing Accommodations for Religious Practices
-===========================================================
 
 One of the key aspects of effectively managing religious diversity in the workplace is providing accommodations for religious practices. In this chapter, we will explore the importance of accommodating religious practices and provide guidance on how organizations can implement accommodation policies.
 

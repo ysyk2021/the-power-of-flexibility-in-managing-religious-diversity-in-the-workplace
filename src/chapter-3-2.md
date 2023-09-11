@@ -1,5 +1,3 @@
-Navigating Accommodation Requests
-=============================================
 
 In this chapter, we will explore the importance of effectively navigating accommodation requests when managing religious diversity in the workplace. Accommodation requests are an essential aspect of ensuring that employees can practice their religious beliefs while maintaining their professional commitments.
 

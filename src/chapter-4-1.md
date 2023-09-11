@@ -1,5 +1,3 @@
-Establishing Inclusive Policies and Practices
-========================================================
 
 Creating an inclusive work environment that respects and accommodates religious diversity is essential for fostering employee engagement, productivity, and overall organizational success. This chapter explores the importance of establishing inclusive policies and practices in managing religious diversity in the workplace.
 

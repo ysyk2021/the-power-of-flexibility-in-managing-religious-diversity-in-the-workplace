@@ -1,5 +1,3 @@
-Chapter 4: Creating a Flexible Work Environment
-===============================================
 
 In this chapter, we will explore strategies for creating a flexible work environment that promotes inclusivity and respect for employees with diverse religious beliefs.
 

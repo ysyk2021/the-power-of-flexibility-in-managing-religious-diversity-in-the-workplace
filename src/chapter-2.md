@@ -1,5 +1,3 @@
-Chapter 2: Understanding Religious Diversity in the Workplace
-=============================================================
 
 In this chapter, we will explore the concept of religious diversity in the workplace. Religious diversity refers to the presence of employees with different religious beliefs and practices in the workplace.
 

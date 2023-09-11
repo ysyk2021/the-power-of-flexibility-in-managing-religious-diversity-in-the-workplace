@@ -1,5 +1,3 @@
-Chapter 5: Addressing Challenges in Managing Religious Diversity
-================================================================
 
 In this chapter, we will explore common challenges that employers face when managing religious diversity in the workplace, and strategies for overcoming these challenges.
 

@@ -1,5 +1,3 @@
-Chapter 6: Measuring Success in Managing Religious Diversity
-============================================================
 
 In this chapter, we will explore the methods and key performance indicators (KPIs) used to measure success in managing religious diversity in the workplace.
 

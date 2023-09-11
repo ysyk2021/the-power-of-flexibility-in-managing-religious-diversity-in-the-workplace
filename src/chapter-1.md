@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this book, we will explore the concept of religious diversity in the workplace and how employers can effectively manage it with flexibility. Religious diversity refers to the presence of employees with different religious beliefs and practices in the workplace.
 

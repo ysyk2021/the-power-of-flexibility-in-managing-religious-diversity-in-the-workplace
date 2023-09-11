@@ -1,5 +1,3 @@
-Developing an Agile Mindset as a Leader
-==================================================
 
 In today's diverse and rapidly changing workplace, leaders are faced with the challenge of managing religious diversity while maintaining a cohesive and inclusive environment. One key approach to successfully navigating this complexity is by developing an agile mindset as a leader. This chapter explores the importance of cultivating an agile mindset and provides practical strategies for leaders to embrace flexibility, adaptability, and open-mindedness.
 
